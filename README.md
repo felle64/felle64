@@ -2,6 +2,6 @@
 - 👀 I’m interested in: Computers, Nuclear, Music and Cars
 - 🌱 I’m currently studying: Blockchain Developer
 - 📫 How to reach me:
-- :discord: felkan.
+- Discord: felkan.
 - Linkedin: https://www.linkedin.com/in/felix-holmberg-593213251/
 
